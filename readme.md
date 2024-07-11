@@ -1,1 +1,2 @@
-**I have no problem with people using my shit as long as u credit me u are good**
+main repository where I store almost all of my shit for brickbattle remix
+I have no problem with people using everything here, as long as you credit me --> **(@pixelcat1014)**
